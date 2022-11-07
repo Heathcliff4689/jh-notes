@@ -21,10 +21,10 @@ Tags: **Society**
   
 
 
-![](https://pica.zhimg.com/50/v2-227e2eb74f857dc7f5b461c8ec69ffa8_720w.jpg?source=1940ef5c)  
+![](https://pic1.zhimg.com/50/v2-227e2eb74f857dc7f5b461c8ec69ffa8_720w.jpg?source=1940ef5c)  
 
 
-![](https://pic2.zhimg.com/50/v2-e5a672a3d01b431c7df33d085ca97253_720w.jpg?source=1940ef5c)  
+![](https://pica.zhimg.com/50/v2-e5a672a3d01b431c7df33d085ca97253_720w.jpg?source=1940ef5c)  
 
 
 ![](https://pica.zhimg.com/50/v2-81243092654cd4e6be9a42dea72091d6_720w.jpg?source=1940ef5c)**这个地方，是川普连任竞选的集会起点。就在今天。**
